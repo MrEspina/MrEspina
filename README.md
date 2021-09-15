@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MrEspina
-- 👀 I’m interested in hacKear la NASA XD (por favor  no encarcelarme )
+- 👀 I’m interested in hacKear la NASA XD (por favor  no encarcelarme)
 -🌱 I’m currently learning del gran Antoniette
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
